@@ -1,1 +1,1 @@
-https://aesthetixvb.github.io/PersonalWebsite.1/
+https://aesthetixvb.neocities.org/
